@@ -52,3 +52,6 @@ https://www.youtube.com/watch?v=0lxGkPt0OSM - Last of the NYC Leathermen
 
 https://www.youtube.com/watch?v=G3pBD6fzCKQ - An Interview with Tony DeBlase about the Leather Pride Flag
 
+https://www.youtube.com/watch?v=ounW4VjQmFU - Leather
+
+https://www.youtube.com/watch?v=-L90KSVPjxE - Lives of The Leathermen - Wales Leather
