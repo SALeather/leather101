@@ -55,3 +55,6 @@ https://www.youtube.com/watch?v=G3pBD6fzCKQ - An Interview with Tony DeBlase abo
 https://www.youtube.com/watch?v=ounW4VjQmFU - Leather
 
 https://www.youtube.com/watch?v=-L90KSVPjxE - Lives of The Leathermen - Wales Leather
+
+https://www.youtube.com/watch?v=WjFSdUjcdD0 - Original Pride: The Satyrs Motorcycle Club
+https://www.youtube.com/watch?v=sMbH4hr5DCU - New York City's Gay Biker Gang
